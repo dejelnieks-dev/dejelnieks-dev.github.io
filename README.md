@@ -1,1 +1,0 @@
-# dejelnieks-dev.github.io
